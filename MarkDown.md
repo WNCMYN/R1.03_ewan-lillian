@@ -17,6 +17,13 @@ Le suricate est un mammifère vivant éssentiellement au Sud-Ouest de l'Afrique 
 Le suricate mesure de 25 à 29 centimères, pèse de **620g** à **970g**,ont une espérence de vie de 12 ans et vivent en groupes dans des terriers la nuit.
 Ils sont naturellement indemnisé au venin et au poison nautemment lorsqu'il se nourrissent.
 ![alt txt](https://ici.exploratv.ca/upload/site/post/picture/1709/632b6e6e4cc01.1712152059.jpg "Suricate en groupe")
+
+## Vie sociale 
+Le suricate vie dans des groupes de 20 à 30 membres, ils se réunnisent dans des terriers et le quittent en journée. Hors du groupe, le suricate meure. Dans le groupe, un couple domine, il est nommé couple domminant, ce couple marque son autorité sur le groupe, les autres membres doivent le toiletter. Un ou plusieurs suricates surveillent constamment leur territoire de l'apporhce d'un prédateur, lorsque celui-ci est repéré, ils aboieent afin de prévenir leurs confrères et se réfugient tous dans les terriers. Ce sont les suricates qui ont prévenu de l'arrivé du prédatuer qui sortiront en premier afin de voir si le danger est touojours présent.
+
+Le suricate peut partager son terrier avec des mangoustes jaunes ou des éccureils terrestres mais surtout pas avec d'autres colonies de suricates.
+
+Les suricates femmelles doivent protéger et alimenter les petits de la suricate dominente, cette protection se fait au péril de leur vie. Si une alerte arrive lorsque une suricate garde des petits, elle doit les amener dans le terrier. Si cette retraite est impossible, elle réunira les petits et s'allongera dessus afin de les proteger.
 ## Alimentation
 Les suricates, mangent principalement:
 * des lézards
