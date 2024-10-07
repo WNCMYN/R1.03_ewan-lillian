@@ -15,11 +15,11 @@ Le suricate est un mammifère vivant éssentiellement au Sud-Ouest de l'Afrique 
 
 ## Caractéristiques
 Le suricate mesure de 25 à 29 centimères, pèse de **620g** à **970g**,ont une espérence de vie de 12 ans et vivent en groupes dans des terriers la nuit.
-Ils sont naturellement indemnisé au venin et au poison nautemment lorsqu'il se nourrissent.
+Ils sont naturellement indemnisé au venin et au poison grâce à leur peau, toutefois, un serpent peut quand même les empoisonner mais il lui faudra une énorme quantité de venin comparé aux autres animaux.
 ![alt txt](https://ici.exploratv.ca/upload/site/post/picture/1709/632b6e6e4cc01.1712152059.jpg "Suricate en groupe")
 
 ## Vie sociale 
-Le suricate vie dans des groupes de 20 à 30 membres, ils se réunnisent dans des terriers et le quittent en journée. Hors du groupe, le suricate meure. Dans le groupe, un couple domine, il est nommé couple domminant, ce couple marque son autorité sur le groupe, les autres membres doivent le toiletter. Un ou plusieurs suricates surveillent constamment leur territoire de l'apporhce d'un prédateur, lorsque celui-ci est repéré, ils aboieent afin de prévenir leurs confrères et se réfugient tous dans les terriers. Ce sont les suricates qui ont prévenu de l'arrivé du prédatuer qui sortiront en premier afin de voir si le danger est touojours présent.
+Le suricate vie dans des groupes de 20 à 30 membres, ils se réunnisent dans des terriers et le quittent en journée. Hors du groupe, le suricate meure. Dans le groupe, un couple domine, il est nommé couple domminant, ce couple marque son autorité sur le groupe, les autres membres doivent le toiletter. Un ou plusieurs suricates surveillent constamment leur territoire de l'apporhce d'un prédateur debout sur un point culminant, lorsque celui-ci est repéré, ils aboieent afin de prévenir leurs confrères et se réfugient tous dans les terriers. Ce sont les suricates qui ont prévenu de l'arrivé du prédatuer qui sortiront en premier afin de voir si le danger est touojours présent.
 
 Le suricate peut partager son terrier avec des mangoustes jaunes ou des éccureils terrestres mais surtout pas avec d'autres colonies de suricates.
 
