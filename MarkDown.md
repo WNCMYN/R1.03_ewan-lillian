@@ -33,6 +33,7 @@ Le suricate vie dans des groupes de 20 à 30 membres, ils se réunnisent dans de
 Le suricate peut partager son terrier avec des mangoustes jaunes ou des éccureils terrestres mais surtout pas avec d'autres [colonies](https://www.zoodelahautetouche.fr/fr/especes/suricate-2486) de suricates.
 
 Les suricates femmelles doivent protéger et alimenter les petits de la suricate dominente, cette protection se fait au péril de leur vie. Si une alerte arrive lorsque une suricate garde des petits, elle doit les amener dans le terrier. Si cette retraite est impossible, elle réunira les petits et s'allongera dessus afin de les proteger.
+![alt txt](https://www.zoodelahautetouche.fr/sites/hautetouche/files/styles/1020x576/public/thumbnails/image/jeunes_suricates_c_mnhn_-_patrick_roux.jpg?itok=B7J0TzcX)
 ## Alimentation
 Les suricates, mangent principalement:
 * des lézards
