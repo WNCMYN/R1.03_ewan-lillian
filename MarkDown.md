@@ -41,5 +41,9 @@ Les suricates sont majoritairement présent en:
 5. Zimbabwe
 ![alt txt](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f2/Meerkat_Area.svg/langfr-1280px-Meerkat_Area.svg.png "Globe"){: style="width: 500px","height: 500px";}
 
+## Sources
 
+[Wikipédia](https://fr.wikipedia.org/wiki/Suricate)
+[Muséum national d’histoire naturelle](https://www.mnhn.fr/fr/suricate)
+[National geographic](https://www.nationalgeographic.fr/video/animaux/les-violentes-batailles-rangees-chez-les-colonies-de-suricates)
 
