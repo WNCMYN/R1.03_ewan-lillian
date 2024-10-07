@@ -21,4 +21,4 @@ Les suricates sont majoritairement présent en:
 3. Afrique du Sud
 4. Zambie
 5. Zimbabwe
-![alt txt](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f2/Meerkat_Area.svg/langfr-1280px-Meerkat_Area.svg.png "Globe")
+![alt txt](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f2/Meerkat_Area.svg/langfr-1280px-Meerkat_Area.svg.png "Globe"){: style="width: 500px","height: 500px";}
